@@ -16,7 +16,7 @@ Many different health conditions affect people in various ways. Some individuals
 
 Tetra Bliss CBD Gummies are formulated with CBD oil, which offers a range of therapeutic benefits. This natural remedy can assist with various health and wellness issues, including anxiety and stress. The active components in these gummies are similar to those found in certain meats, which may help alleviate pain. They are particularly effective for managing persistent restlessness and can significantly improve your overall sense of health. By reducing stress, anxiety, and tension, these gummies help enhance focus and concentration.
 
-Maintaining a good mental state is crucial for better concentration. If insomnia persists, CBD can help by calming your nerves. Additionally, the anti-inflammatory properties of Tetra Bliss CBD Gummies can help reduce swelling, contributing to improved health.
+Maintaining a good mental state is crucial for better concentration. If insomnia persists, CBD can help by calming your nerves. Additionally, the anti-inflammatory properties of [Tetra Bliss CBD Gummies](https://tetra-bliss-cbd-gummies.yolasite.com/) can help reduce swelling, contributing to improved health.
 
 ## Benefits of Tetra Bliss CBD Gummies:
 
